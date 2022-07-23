@@ -8,3 +8,5 @@
 ---
 
 [看看其他地方？](https://github.com/never7ko)
+
+[這似乎是一個沒有什麼用處的連接？](https://never7ko.lijiakaijun.cyou)
